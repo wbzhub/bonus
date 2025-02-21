@@ -1,9 +1,9 @@
 # Ladesbet’e Hoş Geldin! 🚀 Güncel Giriş Linki ve Bahis Fırsatları Burada! 🎉
 
-# [Ladesbet Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Ladesbet Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Ladesbet Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
-# [Ladesbet Giriş İçin Tıklayınız](https://t.ly/IsLRQ)
+# [Ladesbet Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Ladesbet Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Ladesbet Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
+# [Ladesbet Giriş İçin Tıklayınız](https://cutt.ly/EreytWq9)
 
 <br>
 
